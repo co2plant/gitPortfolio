@@ -1,1 +1,1 @@
-# gitPortfolio
+# My name is YoungJae Jo.
